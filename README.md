@@ -1,6 +1,3 @@
 ## SHRIMPO
-READ MY STRAW FOR MORE INFO!! ITS OPTIONAL BUT ADVISED SO U DONT EAT ANY SURPRISES
-MOSTLY AT DW/DT-UT AREA.
-
-I REALLY HATE SIMON COWELL!!
-THIS WHOLE STUPID "README" THING IS A HUGE WIP!! I HATE IT!!
+READ MY STRAW FOR MORE INFO!!
+mostly at dw/dt-ut area or in rps im everywhere even under ur bed vro. watch out im going for the fridge
