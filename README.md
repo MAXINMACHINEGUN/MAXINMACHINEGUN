@@ -1,4 +1,17 @@
 ## SHRIMPO
+i like drawing or something like that
+
+
+
+
+
+
+
+
+
+
+
+
 <img width="574" height="59" alt="top" src="https://github.com/user-attachments/assets/a5dadcea-b9b4-434e-8690-dcaf8ba4bf9f" />
 
 
