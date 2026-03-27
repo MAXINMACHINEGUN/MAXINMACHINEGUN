@@ -1,8 +1,16 @@
 ## SHRIMPO
-i like drawing or something like that
+i like drawing or something like that    
+  
+
 full-time metalhead and ppl annoyer
+
+
 #2 ragebaiter, my bsf is #1 
+
+
 minor, 19+ can int but do NOT try to befriend me, current friends iwcaution
+
+
 OBSESSED kpop fans/koreaboos/ ppl who think "thing: ⛓⛓👹💔 thing in japan:🧁💜✨🌸🎀" dni
 
 
