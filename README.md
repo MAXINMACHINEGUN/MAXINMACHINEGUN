@@ -9,7 +9,7 @@
 
 
 
-<img width="2000" height="59" alt="top" src="https://github.com/user-attachments/assets/a5dadcea-b9b4-434e-8690-dcaf8ba4bf9f" />
+<img width="2000" height="100" alt="top" src="https://github.com/user-attachments/assets/a5dadcea-b9b4-434e-8690-dcaf8ba4bf9f" />
 
 
 
@@ -38,11 +38,11 @@ OBSESSED kpop fans/koreaboos/ ppl who think "thing:⛓👹💔 thing in japan:�
 
 
 
-<img width="2000" height="59" alt="bottom" src="https://github.com/user-attachments/assets/be533804-47ee-4d05-8f5e-dede18c95baf" />
+<img width="2000" height="100" alt="bottom" src="https://github.com/user-attachments/assets/be533804-47ee-4d05-8f5e-dede18c95baf" />
 
 
 
 ![cooltext505127624562496](https://github.com/user-attachments/assets/026b8382-cda1-4c25-9db5-2f2518058260)
 
 
-![blinkiesCafe-n7](https://github.com/user-attachments/assets/87b10d25-6253-4d4f-a9c2-4877ee7d786b)
+
