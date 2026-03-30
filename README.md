@@ -40,3 +40,8 @@ OBSESSED kpop fans/koreaboos/ ppl who think "thing:⛓👹💔 thing in japan:�
 
 <img width="574" height="59" alt="bottom" src="https://github.com/user-attachments/assets/be533804-47ee-4d05-8f5e-dede18c95baf" />
 
+
+
+![cooltext505127624562496](https://github.com/user-attachments/assets/026b8382-cda1-4c25-9db5-2f2518058260)
+
+
