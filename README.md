@@ -45,3 +45,4 @@ OBSESSED kpop fans/koreaboos/ ppl who think "thing:⛓👹💔 thing in japan:�
 ![cooltext505127624562496](https://github.com/user-attachments/assets/026b8382-cda1-4c25-9db5-2f2518058260)
 
 
+![blinkiesCafe-n7](https://github.com/user-attachments/assets/87b10d25-6253-4d4f-a9c2-4877ee7d786b)
