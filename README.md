@@ -21,6 +21,17 @@
 
 
 
+
+
+
+
+
+<img width="2000" height="100" alt="bottom" src="https://github.com/user-attachments/assets/be533804-47ee-4d05-8f5e-dede18c95baf" />
+
+
+
+
+
 i like drawing or something like that    
   
 
@@ -34,12 +45,6 @@ minor, 19+ can int but do NOT try to befriend me, current friends iwcaution
 
 
 OBSESSED kpop fans/koreaboos/ ppl who think "thing:⛓👹💔 thing in japan:✨🌸🎀" dni
-
-
-
-
-<img width="2000" height="100" alt="bottom" src="https://github.com/user-attachments/assets/be533804-47ee-4d05-8f5e-dede18c95baf" />
-
 
 
 ![cooltext505127624562496](https://github.com/user-attachments/assets/026b8382-cda1-4c25-9db5-2f2518058260)
