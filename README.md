@@ -2,7 +2,6 @@
 
 
 
-how do people even make these look so eye-candy damn
 
 
 
@@ -47,6 +46,9 @@ minor, 19+ can int but do NOT try to befriend me, current friends iwcaution
 
 
 OBSESSED kpop fans/koreaboos/ ppl who think "thing:⛓👹💔 thing in japan:✨🌸🎀" dni
+
+
+toxic shippers dni
 
 ![cooltext505127624562496](https://github.com/user-attachments/assets/026b8382-cda1-4c25-9db5-2f2518058260)
 
