@@ -30,7 +30,7 @@
 <img width="2000" height="100" alt="bottom" src="https://github.com/user-attachments/assets/be533804-47ee-4d05-8f5e-dede18c95baf" />
 
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=8F1426&width=435&lines=Right%3F+Left%3F+the+lost+sheep+;die!+die!+die!+die!+die!+die!;weee+haaateeeeeeeeeeeee!;those+who+only+think+about+themselves!" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=30&duration=1000&pause=1000&color=8F1426&width=455&height=194&lines=weee+haaateeeeeeeeeeeee!;those+who+only+think+about+themselves!" alt="Typing SVG" /></a>
 
 
 
