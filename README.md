@@ -30,7 +30,7 @@
 <img width="2000" height="100" alt="bottom" src="https://github.com/user-attachments/assets/be533804-47ee-4d05-8f5e-dede18c95baf" />
 
 
-
+⠀$\textcolor{##8f1426}{\text{hello again.}}$ />
 
 
 i like drawing or something like that    
