@@ -45,7 +45,6 @@ minor, 19+ can int but do NOT try to befriend me, current friends iwcaution
 
 OBSESSED kpop fans/koreaboos/ ppl who think "thing:⛓👹💔 thing in japan:✨🌸🎀" dni
 
-builderfan ( S.E.W.H ) yume, doubles iwec
 
 toxic shippers dni
 
